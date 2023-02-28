@@ -154,4 +154,4 @@ Si vous avez des questions à nous poser, n’hésitez pas à communiquer avec n
 
 Date d’entrée en vigueur : le 27 février 2023
 
-Copyright © 2023 Kams Corp. All right reserved.
+Copyright © 2023 Kams Corp, all right reserved.
