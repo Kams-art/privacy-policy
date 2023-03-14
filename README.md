@@ -1,7 +1,7 @@
 # PRIVACY POLICY
 
 
-https://kams-17c7d.web.app
+https://kams-art.com
 
 ### Antoine Gonthier
 
